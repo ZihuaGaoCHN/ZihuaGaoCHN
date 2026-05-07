@@ -10,7 +10,7 @@
 喜欢听 R&B、D&B、Progressive House 和流行音乐，同时也算一个 Vocaloid Producer。\
 来自山东，现居江苏苏州。性格外向且友好。
 
-I'm just a college guy studying art, and I like photography, music, gaming and anime. \
+I'm just a Chinese college guy studying art, and I like photography, music, gaming and anime. \
 I like R&B, D&B, Progressive House and pop music, and maybe I'm a Vocaloid Producer. \
 I'm from Shandong, but living in Jiangsu now. I'm a outgoing and friendly guy.
 
