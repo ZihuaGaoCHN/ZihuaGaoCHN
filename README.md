@@ -19,7 +19,6 @@ I'm from Shandong, but living in Jiangsu now. I'm a outgoing and friendly guy.
 - 📱 Xiaomi 15S Pro
 - ⌚️ Samsung Galaxy Watch5 Pro
 - 📷 Nikon Zf and Leica M10-R
-- 🎮 Xbox Series Controller
 
 ## 游戏 Games I've been playing
 - 竞速 Racing
