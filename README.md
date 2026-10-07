@@ -18,3 +18,11 @@ From Shandong, but living in Jiangsu now. Feel free to chat with me.
 - 💻 MacBook Pro 16-inch 2024 and an Asus Gaming PC
 - 📱 Xiaomi 15S Pro and iPad Pro 13-inch (M5)
 - 📷 Leica M10-R and DJI OSMO Action 5 Pro
+
+## 在玩的游戏 The games I’ve been playing
+- 明日方舟  Arknights
+- 明日方舟: 终末地  Arknights Endfield
+- 异环  Neverness to Everness
+- 蔚蓝档案  Blue Archive
+- 极限竞速: 地平线6  Forza Horizon 6
+- BanG Dream OurNotes
