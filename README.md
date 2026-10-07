@@ -12,7 +12,7 @@
 
 I'm just a Chinese college guy studying art, and I like photography, music, gaming and anime. \
 I'm a R&B, D&B, Progressive House and pop music lover, and maybe I'm a Vocaloid Producer. \
-I'm from Shandong, but living in Jiangsu now. Feel free to chat with me.
+From Shandong, but living in Jiangsu now. Feel free to chat with me.
 
 ## 设备 Devices
 - 💻 MacBook Pro 16-inch 2024 and an Asus Gaming PC
